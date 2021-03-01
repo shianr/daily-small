@@ -1,1 +1,1 @@
-# daily-smallsss
+# daily-small
